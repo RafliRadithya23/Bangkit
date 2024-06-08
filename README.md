@@ -1,1 +1,1 @@
-# Course Spealization from Bangkit Academy 
+# Course Specialization from Bangkit Academy 
